@@ -1,2 +1,2 @@
 # bootcamp
-## Shanayah's Bootcamp
+## Shanayah Braithwaite's Bootcamp
